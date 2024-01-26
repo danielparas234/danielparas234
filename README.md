@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @danielparas234
+- 👋 Hi, I’m @danielparas
 - 👀 I’m interested in ... Anything
 - 🌱 I’m currently learning ... any possible that might be helpful in the futures.
 - 💞️ I’m looking to collaborate on ...
