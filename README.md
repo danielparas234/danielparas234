@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @danielparas
-- 👀 I’m interested in ... Anything
-- 🌱 I’m currently learning ... any possible that might be helpful in the futures.
+- 👀 I’m interested in ... still trying to figured it out.
+- 🌱 I’m currently learning ... anything that might be helpful in the futures.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... just email me
+- 📫 How to reach me ... danielparas234@gmail.com
 - 😄 Pronouns: ... 
 - ⚡ Fun fact: ... Did u know that you can sleep all day without doing anything?
 
